@@ -23,4 +23,4 @@ Before the era of modern simplicity took over many site's aesthetics there were 
 
 
 
-![alt text](https://gracelgriles.github.io/ladwhistledownengl350/images/hometownjpegsmall.jpg)
+![alt text](https://gracelgriles.github.io/ladwhistledownengl350/images/reviewblogpic1)
